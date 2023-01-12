@@ -12,7 +12,7 @@
 - Thank you.
 
 ## 김성민
-
+-My name is Sungmin Kim Nice to meet you. My MBTI is INFP.
 ## 김건희
 
 ## 이승현
