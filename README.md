@@ -6,6 +6,9 @@
 ## 조수진
 
 ## 장현지
+- My namae is Hyunji Jang
+- I'm 23 years old.
+- Thank you.
 
 ## 김성민
 
