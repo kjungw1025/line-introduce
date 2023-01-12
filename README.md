@@ -14,7 +14,10 @@
 ## 김성민
 -My name is Sungmin Kim Nice to meet you. My MBTI is INFP.
 ## 김건희
-
+- Hi, my name is geonhee kim.
+  I'm very hungry and tired.
+  Nice to meet you.
+  Have a nice day-
 ## 이승현
 HELLO ! 
 - My name is Seung Hyun Lee.
